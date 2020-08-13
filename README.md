@@ -7,7 +7,7 @@
 - ⚡ Fun fact: I like cycling and play piano
 - 🥅 2020 Goals: Learn a lot and write more blogpost
 
-📘 Check out my [blog]([https://blog.martincserep.hu/](https://blog.martincserep.hu/))
+📘 Check out my [blog](https://blog.martincserep.hu/)
 
 ### Connect with me:
 
